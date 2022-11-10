@@ -2,9 +2,9 @@
 ## Retour sur la sortie
 
 ### Oeuvre préférée
-Nommez l'oeuvre que vous avez préférée lors de notre visite. En 2 à 3 lignes, expliquez pourquoi. 
+L'oeuvre que j'ai préférée cétait les méduse qui flottaient. J'ai bein aimé le concepter d'avoir des méduses éluminer qui avait l'aire de follter dans les air. La facons, que le méduse se conflait et dégonflait pour donner l'illusion que les méduses étaient en train de nagé dans l'espace. Oeuvre simple mes très bien réaliser a mon avis.
 
 
 ### Oeuvre la moins appréciée
-Nommez l'oeuvre que vous avez le moins aimé lors de notre visite. En 2 à 3 lignes, expliquez pourquoi. 
+Je n'ai pas vraiment aimé l'oeuvre du téléphones sur la couture. Désoler, je ne me rappelle plus du nom officielle de l'oeuvre mais mêm
 
