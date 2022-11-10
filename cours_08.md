@@ -1,10 +1,10 @@
 # Cours 8
 ## Retour sur la sortie
 
-### Oeuvre préférée
-L'oeuvre que j'ai préférée cétait les méduse qui flottaient. J'ai bein aimé le concepter d'avoir des méduses éluminer qui avait l'aire de follter dans les air. La facons, que le méduse se conflait et dégonflait pour donner l'illusion que les méduses étaient en train de nagé dans l'espace. Oeuvre simple mes très bien réaliser a mon avis.
+### Œuvre préférée
+L'œuvre que j'ai préférée c’était les méduses qui flottaient. J'ai bien aimé le concept d'avoir des méduses qui avait l'aire de flottaient dans les airs. La façon, que les méduses se gonflaient et dégonflaient pour donner l'illusion que les méduses étaient en train de nager dans l'espace. Une Œuvre simple, mais très bien réalisée à mon avis.
 
 
-### Oeuvre la moins appréciée
-Je n'ai pas vraiment aimé l'oeuvre du téléphones sur la couture. Désoler, je ne me rappelle plus du nom officielle de l'oeuvre mais mêm
+### Œuvre la moins appréciée
+Je n'ai pas vraiment aimé l'œuvre du téléphone sur la couverture. Désoler, je ne me rappelle plus du nom officiel de l'œuvre, mais ce que je sais c'est que cette œuvre je ne l'ai pas aimé. Je n'ai vraiment pas compris le concept des cette œuvre et je l'ai trouvé vraiment pas intéressante. Juste un téléphone qui ce fermait a cause qui avait plus de batteries a chaque 3 minutes.
 
