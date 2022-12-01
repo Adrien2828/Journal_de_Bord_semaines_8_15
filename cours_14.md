@@ -3,10 +3,15 @@
 Durée: 8 à 10 minutes
 
 ### Résumer votre projet en une phrase
-Résumer le projet en une phrase concise.   
+Nous avons pensé à créer un jeu open world et multi-joueur dans un monde de style pixel !
 
 ### Description du projet 
-Décrivez les grandes lignes de votre projet. 
+Open world
+Jeu de combat
+Multi-joueur
+Style
+Monétisation
+RPG
 
 ### Schéma du projet ou scénarimage
 Expliquer le déroulement de votre expérience grâce à un schéma narratif ou à un scénarimage. 
