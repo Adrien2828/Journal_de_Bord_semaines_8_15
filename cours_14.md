@@ -14,9 +14,6 @@ Nous avons pensé à créer un jeu open world et multi-joueur dans un monde de s
 ### Moodboard
 ![Image](Images/MicrosoftTeams-image%20(1).png)
 
-### Technologies
-Décrivez quelles seront les technologies utilisées dans votre projet. 
-
 ### Tâches
 -Programmation
 -Animation 2D
